@@ -10,4 +10,4 @@ Pas2: (opțional): eu am creat 3 praguri, nu cred că vor fi mai multe, dar un p
 
 Pas3: se introduce salariul brut
 
-Pas4: se intră în stare de șoc și sunt șanse foarte mari să crească puternic nivelul de stres :(
+Pas4: se intră în stare de șoc și sunt șanse foarte mari să crească puternic nivelul de stres urmat apoi de căutat opțiuni de optimizare fiscală și/sau emigrare :/
